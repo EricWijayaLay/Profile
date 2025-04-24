@@ -1,2 +1,11 @@
-[Portofolio Eric Wijaya Lay.pdf](https://github.com/user-attachments/files/19880847/Portofolio.Eric.Wijaya.Lay.pdf)
-[cv-ats-1.pdf](https://github.com/user-attachments/files/19880853/cv-ats-1.pdf)
+
+![Screenshot (245)](https://github.com/user-attachments/assets/05a781d3-ddeb-49e3-baab-8dfe09fde99d)
+![Screenshot (230)](https://github.com/user-attachments/assets/6b303949-1b65-4603-8931-79f1dfd98b69)
+![Screenshot (231)](https://github.com/user-attachments/assets/bc475add-c87b-4742-9aa1-7dc9ee81cb53)
+![Screenshot (232)](https://github.com/user-attachments/assets/81f827a0-10b0-47f5-a4c0-f9447957bbc4)
+![Screenshot (237)](https://github.com/user-attachments/assets/3f512073-3b13-40e0-b11b-4bb216d4a534)
+![Screenshot (239)](https://github.com/user-attachments/assets/b12c56c4-94a0-4250-9244-2734ff4a85a6)
+![Screenshot (240)](https://github.com/user-attachments/assets/356188fc-661c-43d4-98d9-7466f86ad947)
+![Screenshot (241)](https://github.com/user-attachments/assets/a0330dcc-4956-4728-9072-60e635c3d24a)
+![Screenshot (242)](https://github.com/user-attachments/assets/be1793f4-3145-421b-9e35-3a9c273f2672)
+![Screenshot (244)](https://github.com/user-attachments/assets/4552b84c-dd40-4de0-b1a3-4b92d8759a7b)
